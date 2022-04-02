@@ -185,7 +185,7 @@ All genitalia are constructed from the same tissues, they are merely organized d
 
 The skin on the glans and shaft becomes much thinner and fragile, more prone to tearing and irritation, while also becoming *significantly* more sensitive to touch. The entire organ also becomes much more sensitive to pressure, and vibration becomes a better form of stimulation over stroking, which may become painful.
 
-#### Moisture and Feminine Odor
+##### Moisture and Feminine Odor
 
 The skin along the shaft begins to secret the same fluids as the vaginal canal, particularly during arousal (yes, trans girls get wet). These fluids encourage the development of the same microbiome that develops within the vaginal canal. The combination of these factors means that odor (and taste) of the penis changes to align more to that of a vulva. 
 
