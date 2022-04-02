@@ -165,7 +165,7 @@ To jest w porządku, jeśli *w zupełności* nie potrzebujesz tranzycji medyczne
 
 ### Zinternalizowane problemy z obrazem ciała
 
-Świat jest pełen podświadomych przekazów na temat tego, jak powinny wyglądać męskie i żeńskie ciała. Jesteśmy bombardowani reklamami, które wraz z mediami kreują narrację, co jest, a co nie jest piękne. Nie bądź zbyt gruby_a, zbyt chudy_a, zbyt wysoki_a, zbyt krótki_a, nie miej zbyt szerokiej szczęki, zbyt dużego nosa, noś makijaż, ale nie za dużo, nie wychódź z domu bez stanika, ale nie pokazuj go ludziom. Musisz, nie możesz, musisz, nie możesz, tak powtarzają wszechobecne oczekiwania wyglądu zgodnego z którąś płcią.
+Świat jest pełen podświadomych przekazów na temat tego, jak powinny wyglądać męskie i żeńskie ciała. Jesteśmy bombardowani reklamami, które wraz z mediami kreują narrację, co jest, a co nie jest piękne. Nie bądź zbyt gruby_a, zbyt chudy_a, zbyt wysoki_a, zbyt niski_a, nie miej zbyt szerokiej szczęki, zbyt dużego nosa, noś makijaż, ale nie za dużo, nie wychodź z domu bez stanika, ale nie pokazuj go ludziom. Musisz, nie możesz, musisz, nie możesz, tak powtarzają wszechobecne oczekiwania wyglądu zgodnego z którąś płcią.
 
 Nikt nie jest odporny na ten przekaz; osoby trans internalizują nakazy i zakazy stawiane płci, z którą się identyfikują. Transpłciowe dziewczyny dorastają, przykładając do siebie standardy stawiane kobietom; transpłciowi chłopcy przykładają standardy stawiane mężczyznom; osoby niebinarne często uwewnętrzniają wstyd otaczający androgynię. To wszystko *na domiar* wstydu, jakim są obarczeni_one, nie spełniając standardów stawianych ich płci urodzeniowej.
 

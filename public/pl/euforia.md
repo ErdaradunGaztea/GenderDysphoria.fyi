@@ -92,7 +92,7 @@ Przykłady:
 * gdy ogolisz nogi,
 * gdy NIE golisz nóg,
 * gdy uwzględniają cię w czymś, co normalnie byłoby zamknięte przed tobą z powodu płci przypisanej tobie przy urodzeniu (np. wieczór panieński lub kawalerski),
-* gdy czujesz się atrakcyjnie lub uprawiasz seksu w sposób współgrający z twoją tożsamością płciową i seksualnością.
+* gdy czujesz się atrakcyjnie lub uprawiasz seks w sposób współgrający z twoją tożsamością płciową i seksualnością.
 
 Nawet gdy po prostu istniejesz jako prawdziwa wersja siebie i tak postrzegają cię inni, możesz odczuwać olbrzymią euforię.
 
